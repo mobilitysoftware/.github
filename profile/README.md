@@ -2,10 +2,10 @@
 
 In Mobility Software, we're designing very good apps and games for everyone.
 
-![image](https://github.com/mobilitysoftware/.github/assets/77992699/40ef2966-f56b-4201-a436-36081b186349)
+![image](https://play-lh.googleusercontent.com/MGlWgzlkcjYqGxjkIVFCfFRkRS1p4ke4mX-J8gisudZ6jcAcLcJAwr3SG9HxAoYB5HA=w7680-h4320-rw)
 
 Follow us for more stylish projects.
 
-© 2024 - Mobility Software Technologies®
+© 2020 - 2025 - Mobility Software Technologies. 
 
 All Rights Reserved.
